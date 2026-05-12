@@ -1,4 +1,4 @@
-# 
+# professional birdeye sniper bot | new-token-detection + low-cap-gem-detection offers the most advanced birdeye sniper bot, with new-token-detection and low-cap-gem-detection.
 
 
 
